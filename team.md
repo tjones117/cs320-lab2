@@ -1,5 +1,5 @@
 Team Members:
 
 *Tyler Jones
-*OTHERS
+*Veronica
 *George
